@@ -1,4 +1,4 @@
-# 
+# rare Visual Studio Code for PC | Visual Studio Code for Windows Script | Git-integration + linting offers the most advanced Visual Studio Code for PC | Visual Studio Code for
 
 
 
